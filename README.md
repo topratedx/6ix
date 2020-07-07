@@ -13,7 +13,7 @@
 
 
 # INFO
-ask me for more details on it cord:pix#1337
+ask me for more details on it cord:9tacey#1337
 
 
 

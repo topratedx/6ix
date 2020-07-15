@@ -6,6 +6,8 @@
     𝓢𝒊𝒍𝒉𝞸𝞾𝙚𝒕𝒕𝙚 𝓑𝙧𝙖𝙥𝙡𝙚#7777 - another skid....
     clyd and her friend jada - they said they didn't skid, but when I asked for the file they gave me a token grabber 💀
     mmv dropout#1886 - another one 💀 dumb enough to do it on screenshare
+    𝐮𝐨𝐨⅁#9999 - just changed the six to 1X which is H3X clan. they skidded
+    
 
 # Updates
      I fixed the colour error now can you freely run the bot

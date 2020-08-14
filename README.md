@@ -1,4 +1,4 @@
-# 6ix selfbot getting reworked and redone, new selfbots going to be out in a few weeks
+# 6ix selfbot getting reworked and redone, new selfbot is going to be out in a few weeks
  ![Screenshot](screenshot.png)
 # SKIDS
     Any nigga with lie in his name ->  https://github.com/Pixxth/Lie-selfbot-Leaked-by-pix
@@ -15,7 +15,7 @@
 
 
 # INFO
-ask me for more details on it cord:9tacey#1337
+ask me for more details on it cord:8tacey.#1337
 
 
 

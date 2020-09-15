@@ -15,8 +15,7 @@
 
 
 # INFO
-ask me for more details on it cord:8tacey.#1337
-
-
-
 big time credit to coats.#1337 and fweak
+
+
+# not on cord anymore
